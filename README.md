@@ -1,4 +1,4 @@
-Hi! My name is Ponguwt (Owen) Tangjintanakarn.
+Hi! My name is Pongwut (Owen / Ong) Tangjintanakarn.
 
 Welcome to my github
 
